@@ -20,4 +20,4 @@ FUERA DE O EN RELACIÓN CON EL SOFTWARE O EL USO U OTROS TRATOS EN EL SOFTWARE N
 **(El sitio web se compartirá, el código es open source y le pertenece a toda la comunidad de discord , la podrán usar y modificar si quieren cooperar con el sitio web bot o utilizar para sus proyectos NO PUEDEN VENDER EL CODIGO COMO SI FUERA DE USTEDES La licencia se actualizara en futuro <3)**
 
 En resumen Pueden usar la pagina para sus proyectos etc pero no pueden venderlo como si fuera de ustedes y tienen que dejara los creditos del creador si quieren hacer
-algo con la pagina que no esta permitido tienen que hablar con ceo o Founder para ver a que acuerdo pueden llegar y tambien para la cumunidad si quiere ayudar a mejorar la pagina estan bienvenidos
+algo con la pagina que no esta permitido tienen que hablar con ceo o Founder para ver a que acuerdo pueden llegar y tambien para la cumunidad si quiere ayudar a mejorar la pagina estan bienvenidos.
